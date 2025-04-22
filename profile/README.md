@@ -34,7 +34,7 @@ Download the latest free Fortnite skin changer. Instantly swap between cosmetics
 Here’s a preview of how the **Fortnite Skin Changer** looks in action:
 
 ### Skin Preview 1:  
-![Galaxy Skin](https://i.ytimg.com/vi/7oySvorycm8/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBYxxyb5yPOG_YBFkCLv5mlsXzjEw)
+![Galaxy Skin](https://www.sammobile.com/wp-content/uploads/2019/10/fortnite-galaxy-skin.jpg)
 
 ### Skin Preview 2:  
 ![Renegade Raider](https://cdn2.unrealengine.com/fortnite-og-season-shop-social-1920x1080-d922f58ee5ee.jpg)
